@@ -1,1 +1,0 @@
-# pinjanos.github.io
